@@ -6,4 +6,4 @@ W razie błędów napisz do mnie na discord : wercus#0420
 <br>
 ![unknown](https://cdn.discordapp.com/attachments/938542041028251727/948121512290942996/unknown.png)
 <br>
-![d](https://cdn.discordapp.com/attachments/938542041028251727/948121607338074112/unknown.png)
+
